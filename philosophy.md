@@ -47,6 +47,8 @@ https://www.amazon.com/dp/B003V8B5XO/ref=dp-kindle-redirect?_encoding=UTF8&btkr=
 
 https://www.amazon.com/dp/B01JYX1UI4/ref=dp-kindle-redirect?_encoding=UTF8&btkr=1
 
+- John Locke, The Two Treatises of Civil Government (Hollis ed.) [1689]
+http://oll.libertyfund.org/titles/locke-the-two-treatises-of-civil-government-hollis-ed
 
 
 
